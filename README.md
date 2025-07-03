@@ -1,6 +1,6 @@
 # Scorecard
 
-- **Vaibhav** - 9  
+- **Vaibhav** - 9  (pride king 2025)
 - **Dhruvi** - 9  
 - **Mayuresh** - 7  
 - **Ashutosh** - 6
